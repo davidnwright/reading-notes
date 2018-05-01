@@ -1,0 +1,5 @@
+Cox, Richard J. *Personal Archives and a New Archival Calling: Readings, Reflections and Ruminations*. Litwin Books. Duluth, Minnesota, 2008.
+
+"personal archives might be assuming a new importance in society as the technical means for creating, maintaining, and using documents improve and become more cost-effective, and, as individuals and families seek to preserve their old documents, especially traditional paper forms, as a connection to a past that may seem to be in risk of being swallowed up in the immense digital gadgetry in our Internet Age" (Richard J. Cox vii)
+
+"Personal recordkeeping raises a remarkable array of issues and concerns about records and their preservation, public or collective memory, the mission of professional records managers and archivists, the nature of the role of the insitutional archives, and the function of the individual citizen as their own archivist." (Cox vii)
